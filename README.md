@@ -16,7 +16,11 @@ Wanna know a quick summary of me? Well, my pronouns are She/Her preferably, but 
 Find out the rest about me on my Patreon! * www.patreon.com/kittspi
 
 DNI List includes: 
+
 Cassandra
+
 ***Stickman***
+
 MegaBuster/Hermes (Shorty)
+
 GitHub tags that are too extra for me, like Skullgirls/Flygons
