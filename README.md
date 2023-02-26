@@ -29,4 +29,4 @@ MegaBuster/Hermes (Shorty)
 
 GitHub tags that are too extra for me, like Skullgirls/Flygons
 
-The Google tag Susana VG
+Google tag: Susana VG
