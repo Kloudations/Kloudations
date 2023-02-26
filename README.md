@@ -16,8 +16,8 @@ Wanna know a quick summary of me? Well, my pronouns are She/Her preferably, but 
 
 Find out the rest about me on my Patreon! * www.patreon.com/kittspi
 
-DNI List includes: 
 _____________________________
+DNI List includes: 
 
 Cassandra
 
