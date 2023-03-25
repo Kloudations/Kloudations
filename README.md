@@ -8,7 +8,7 @@ Here's how I'm feeling:
 ***Terrible. For the last 4 months (since this creation of my GitHub) and further on, I've been dealing with minor harassment and false-accusations. I also have PTSD from two semi-similar traumas. All I ask is that you don't come complaining to me over anything I do or say to accidentally upset you and just tell me what I'm doing wrong. Be mature and civilized about it.***
 ______________________________
 
-Wanna know a quick summary of me? Well, my pronouns are She/Her preferably, but They/Them's okay. Close people call me Kitt and Kittkat's my special name. I'm a furry, and I admire Pokemon! My Discord's Kittspi#6109, and as a Libra I'm:
+Wanna know a quick summary of me? Well, my pronouns are She/Her preferably, but They/Them's okay. Close people call me Kitt and Kittkat's my special name. I'm a furry, and I admire Pokemon! My Discord's Zera! [Kittspi]#6109, and as a Libra I'm:
 
 - Socially awkward
 - Ambiverted (Introverted and extroverted. If I'm feeling comfortable, I'm usually introverted. Extroverted if I feel uneven with my life.
@@ -18,15 +18,9 @@ Wanna know a quick summary of me? Well, my pronouns are She/Her preferably, but 
 
 Find out the rest about me on my Patreon! * www.patreon.com/kittspi
 
-_____________________________
-DNI List includes: 
+![image](https://user-images.githubusercontent.com/99100034/227718875-c5e52420-1a6b-41d9-8097-76680c1e1003.png)
+![image](https://user-images.githubusercontent.com/99100034/227719036-bf12601a-7c58-41b4-97ad-65db3be5e5b5.png)
+![image](https://user-images.githubusercontent.com/99100034/227719399-7eb49137-3a89-4e71-a56f-a654db2a3489.png)
 
-Cassandra
 
-***Stickman***
 
-MegaBuster/Hermes (Shorty)
-
-GitHub tags that are too extra for me, like Skullgirls/Flygons
-
-Google tag: Susana VG
