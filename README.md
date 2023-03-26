@@ -4,7 +4,11 @@ If ya seein' all of this, then you saw it on a special skin I must have on PT (P
 
 ______________________________
 
-Wanna know a quick summary of me? Well, my pronouns are She/Her preferably, but They/Them's okay. Close people call me Kitt and Kittkat's my special name. I'm a furry, and I admire Pokemon! My Discord's Zera! [Kittspi]#6109, and as a Libra I'm:
+Wanna know a quick summary of me? Well, my pronouns are She/Her preferably, but They/Them's okay. Close people call me Kitt and Kittkat's my special name. I'm a furry, and I admire Pokemon! 
+
+I dislike copying/taking hard inspo. But if I end up having a similar morph/skin, varying on mood, then I could change its design. No harm dome.
+
+My Discord's Zera! [Kittspi]#6109, and as a Libra I'm:
 
 - Socially awkward
 - Ambiverted (Introverted and extroverted. If I'm feeling comfortable, I'm usually introverted. Extroverted if I feel uneven with my life.
