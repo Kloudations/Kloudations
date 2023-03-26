@@ -13,7 +13,9 @@ Wanna know a quick summary of me? Well, my pronouns are She/Her preferably, but 
 - Admire sketching, animals, and all of my friends. Friends include, Flare Blitz, Glitchy, GoopyTheRiot, Reishar, Ed, Cherri/Pen, KellTheOcto, Maddie, etc.
 
 Find out the rest about me on my Patreon!* 
+
 www.patreon.com/kittspi
+
 www.discord.com/app
 
 
