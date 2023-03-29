@@ -22,6 +22,6 @@ www.patreon.com/kittspi
 
 www.pony.town
 
-www.discord.com/app
+www.discordapp.com
 
 
