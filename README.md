@@ -6,7 +6,7 @@ ______________________________
 
 Wanna know a quick summary of me? Well, my pronouns are She/Her preferably, but They/Them's okay. Close people call me Kitt and Kittkat's my special name. I'm a furry, and I admire Pokemon! 
 
-I dislike copying/taking hard inspo. Vice versa as well. But if I end up having a similar morph/skin similar to any of yours, varying on mood, then I could change its design. No harm dome.
+I dislike copying/taking hard inspo. Vice versa as well. But if I end up having a similar morph/skin similar to any of yours, varying on mood, then I could change its design. No harm done.
 
 My Discord's Zera! [Kittspi]#6109
 
