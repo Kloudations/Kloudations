@@ -14,6 +14,15 @@ Wanna know a quick summary of me? Well, my pronouns are She/Her preferably, but 
 
 I dislike copying/taking hard inspo. Vice versa as well. But if I end up having a similar morph/skin similar to any of yours, varying on mood, then I could change its design. No harm done.
 
+Fandom interests (most of which I don't really know a lot about)
+
+⚡ Pokemon
+
+⚡ Fortnite (we don't talk about this...)
+
+⚡ FNAF (Five Night's at Freddy's)
+________
+
 I Also Tag My Patreon, Discord, And/Or Github On Certain Skins for Certain Reasons!
 
 Patreon: Usually Tagged With My Top Skins, Or For People To Get To Know Me Directly Upon Clicking.
