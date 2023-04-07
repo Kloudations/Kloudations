@@ -12,6 +12,8 @@ ______________________________
 
 Wanna know a quick summary of me? Well, my pronouns are She/Her preferably, but They/Them's okay. Close people call me Kitt and Kittkat's my special name. I'm a furry, and I admire Pokemon! 
 
+I'm just some goofy ahh person trying to make friend, yet not at the same time. I have **tons of friends** and every once in a while,I lose oen for that reason. I'm sorry if Im hesitant on talking to you if you wanted to be a friend!
+
 I dislike copying/taking hard inspo. Vice versa as well. But if I end up having a similar morph/skin similar to any of yours, varying on mood, then I could change its design. No harm done.
 
 Video game fandom interests (most of which I don't really know a lot about)
