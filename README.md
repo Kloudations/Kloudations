@@ -2,7 +2,7 @@
 
 **If I'm doing something wrong out in public, PLEASE TELL ME! I dislike making people uncomfy and people hiding me for unsaid reason.Talking to me in a calm manner's best for curing me of moody actions, as they usually always are, not to mention I wish for no one to be feeling bad.**
 
--------------------------------
+-----------------------------
 
 Heya there. The name's Kittspi (Kitt-SPEE). I also go by Kitters or Zera.
 
