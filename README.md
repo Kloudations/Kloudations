@@ -1,6 +1,6 @@
-**DO NOT COPY MY SKINS PLEASE! If you wish on inspo, ASK! MY ONLY EXCEPTION ON INSPIRATION ARE MY ZERAORA COSPLAYS.**
+**DO NOT COPY MY SKINS PLEASE! If you wish on inspo, ASK! MY ONLY EXCEPTION ON INSPIRATION ARE MY ZERAORA, ZOROARK, FLORAGATO, AND LYCANROC COSPLAYS.**
 
-**If I'm doing something wrong out in public, PLEASE TELL ME! I dislike making people uncomfy and people hiding me for unsaid reason.Talking to me in a calm manner's best for curing me of moody actions, as they usually always are, not to mention I wish for no one to be feeling bad.**
+**If I'm doing something wrong out in public, PLEASE TELL ME! I dislike having those displeased free-hiding for unsaid reason.**
 
 -----------------------------
 
