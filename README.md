@@ -1,6 +1,6 @@
 **DO NOT COPY MY SKINS PLEASE! If you wish on inspo, ASK! MY ONLY EXCEPTION ON INSPIRATION ARE MY ZERAORA, ZOROARK, FLORAGATO, AND LYCANROC COSPLAYS.**
 
-**If I'm doing something wrong out in public, PLEASE TELL ME! I dislike having those displeased free-hiding for unsaid reason.**
+**If I'm doing something wrong out in public, PLEASE TELL ME! I dislike having those displeased/free-hiding for unsaid reason.**
 
 -----------------------------
 
