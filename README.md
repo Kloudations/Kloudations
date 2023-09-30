@@ -12,7 +12,7 @@ ______________________________
 
 Wanna know a quick summary of me? Bet.
 
-I go by the names Kitt, Kittster, Kittsora, Zera, Kitters, and Kittkat. Yeah, lotta "Kitts", ain't there. 
+I go by the names Kitt, Kittster, Kittsora, Zera, Kitters, Glowskitt/Glowspee, and Kittkat. Yeah, lotta "Kitts", ain't there. 
 
 I dislike copying/taking hard inspo. Vice versa as well. But if I end up having a similar morph/skin similar to any of yours, varying on mood, then I could change its design. No harm done.
 
