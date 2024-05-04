@@ -1,3 +1,8 @@
+Find out the rest about me on my Patreon* 
+
+www.patreon.com/kittspi
+
+
 **DO NOT COPY MY SKINS PLEASE! If you wish on inspo, ASK! MY ONLY EXCEPTION ON INSPIRATION ARE MY ZERAORA, ZOROARK, FLORAGATO, AND LYCANROC COSPLAYS.**
 
 **If I'm doing something wrong out in public, PLEASE TELL ME! I dislike having those displeased/free-hiding for unsaid reason.**
@@ -12,7 +17,7 @@ ______________________________
 
 Wanna know a quick summary of me? Bet.
 
-I go by the names Kitt, Kittster, Kittsora, Zera, Kitters, Glowskitt/Glowspee, and Kittkat. Yeah, lotta "Kitts", ain't there. 
+I go by the names Kitt, Kittster, Kittsora, Zera, Kitters, Klouded/Kloudy(?), Glowskitt/Glowspee, and Kittkat. Yeah, lotta "Kitts", ain't there. Closest friends can call me Korryn.
 
 I dislike copying/taking hard inspo. Vice versa as well. But if I end up having a similar morph/skin similar to any of yours, varying on mood, then I could change its design. No harm done.
 
@@ -20,18 +25,14 @@ Video game fandom interests (most of which I don't really know a lot about)
 
 ⚡ Pokemon
 
-⚡ Fortnite
+⚡ Murder Drones! (Fans Please INT, I Beg Of You Guys.)
 
-⚡ FNAF (Five Night's at Freddy's)
+⚡ FNAF 
 ________
 
-I Also Tag My Patreon, Discord, And/Or Github On Certain Skins for Certain Reasons
+I Have Patreon, GitHub, Discord, And TikTok for Socials I Often Tag! You'll Mostly Find My Patreon.
 
-Patreon: Usually Tagged With My Top Skins, Or For People To Get To Know Me Directly Upon Clicking.
-
-Github: Usually Less Detailed Skins. (I'm Not Fully Sure What To Keep On My Github As Of Right Now, This Is A WIP!)
-
-Discord: Less Detailed Skins OR Showing For Friend Requests (subtle). -- My Discord's just "kittspi".
+-- My Discord's just "kittspi". TELL ME YOUR USER SO I CAN VERIFY!
 
 ![image](https://user-images.githubusercontent.com/99100034/227718875-c5e52420-1a6b-41d9-8097-76680c1e1003.png)
 ![image](https://user-images.githubusercontent.com/99100034/227719036-bf12601a-7c58-41b4-97ad-65db3be5e5b5.png)
@@ -39,12 +40,5 @@ Discord: Less Detailed Skins OR Showing For Friend Requests (subtle). -- My Disc
 
 ______________________________
 
-Find out the rest about me on my Patreon!* 
 
-www.patreon.com/kittspi
-
-www.pony.town
-
-www.discordapp.com
-
-
+Have a Bless Day To Those That Are Maturely Sane. <3
