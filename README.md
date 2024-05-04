@@ -21,13 +21,15 @@ I go by the names Kitt, Kittster, Kittsora, Zera, Kitters, Klouded/Kloudy(?), Gl
 
 I dislike copying/taking hard inspo. Vice versa as well. But if I end up having a similar morph/skin similar to any of yours, varying on mood, then I could change its design. No harm done.
 
-Video game fandom interests (most of which I don't really know a lot about)
+Fandom interests (most of which I don't really know a lot about)
 
-⚡ Pokemon
+☁️ Pokemon
 
-⚡ Murder Drones! (Fans Please INT, I Beg Of You Guys.)
+☁️ Murder Drones! (Fans Please INT, I Beg Of You Guys.)
 
-⚡ FNAF 
+☁️ FNAF 
+
+**HEY! I Don't Like Hazbin Hotel/Helluva Boss In Any Association With The Creator Vivziepop. I Only Love Two or Three Characters, With ZERO Relation To Dreaded The Ties On Viv. I HATE The Fandom. S/A Jokers and Valentino IRLs DNI. I'm A Victim Myself And You're Mocking Me In Front Of My Peripheral Vision.
 ________
 
 I Have Patreon, GitHub, Discord, And TikTok for Socials I Often Tag! You'll Mostly Find My Patreon.
