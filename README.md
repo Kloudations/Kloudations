@@ -9,6 +9,8 @@ www.patreon.com/kittspi
 
 -----------------------------
 
+☁️ . ☁️ . ☁️ . ☁️ . ☁️
+
 Heya there. The name's Kittspi (Kitt-SPEE). I also go by Kitters or Zera.
 
 If ya seein' all of this, then you saw it on a special skin I must have on PT (Pony Town), or saw it as a link in my Patreon. I literally have no reason to make this, so everything's on my Patre'. 💀
@@ -23,13 +25,13 @@ I dislike copying/taking hard inspo. Vice versa as well. But if I end up having 
 
 Fandom interests (most of which I don't really know a lot about)
 
-☁️ Pokemon
+.☁️. Pokemon
 
-☁️ Murder Drones! (Fans Please INT, I Beg Of You Guys.)
+.☁️. Murder Drones! (Fans Please INT, I Beg Of You Guys.)
 
-☁️ FNAF 
+.☁️. FNAF 
 
-**HEY! I Don't Like Hazbin Hotel/Helluva Boss In Any Association With The Creator Vivziepop. I Only Love Two or Three Characters, With ZERO Relation To Dreaded The Ties On Viv. I HATE The Fandom. S/A Jokers and Valentino IRLs DNI. I'm A Victim Myself And You're Mocking Me In Front Of My Peripheral Vision.
+!!! **HEY! I Don't Like Hazbin Hotel/Helluva Boss In Any Association With The Creator Vivziepop. I Only Love Two or Three Characters, With ZERO Relation To Dreaded The Ties On Viv. I HATE The Fandom. S/A Jokers and Valentino IRLs DNI. I'm A Victim Myself And You're Mocking Me In Front Of My Peripheral Vision.
 ________
 
 I Have Patreon, GitHub, Discord, And TikTok for Socials I Often Tag! You'll Mostly Find My Patreon.
@@ -43,4 +45,4 @@ I Have Patreon, GitHub, Discord, And TikTok for Socials I Often Tag! You'll Most
 ______________________________
 
 
-Have a Bless Day To Those That Are Maturely Sane. <3
+Have a Blessed Day To Those That Are Maturely Sane. <3
