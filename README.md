@@ -31,7 +31,7 @@ Fandom interests (most of which I don't really know a lot about)
 
 .☁️. FNAF 
 
-!!! **HEY! I Don't Like Hazbin Hotel/Helluva Boss In Any Association With The Creator Vivziepop. I Only Love Two or Three Characters, With ZERO Relation To Dreaded The Ties On Viv. I HATE The Fandom. S/A Jokers and Valentino IRLs DNI. I'm A Victim Myself And You're Mocking Me In Front Of My Peripheral Vision.
+!!! **HEY! I Don't Like Hazbin Hotel/Helluva Boss In Any Association With The Creator Vivziepop. I Only Love Two or Three Characters, With ZERO Relation To Dreaded Ties On Viv. I HATE The Fandom. S/A Jokers and Valentino IRLs DNI. I'm A Victim Myself And You're Mocking Me In Front Of My Peripheral Vision.
 ________
 
 I Have Patreon, GitHub, Discord, And TikTok for Socials I Often Tag! You'll Mostly Find My Patreon.
