@@ -13,7 +13,7 @@ www.patreon.com/kittspi
 
 Heya there. The name's Kittspi (Kitt-SPEE). I also go by Kitters or Zera.
 
-If ya seein' all of this, then you saw it on a special skin I must have on PT (Pony Town), or saw it as a link in my Patreon. I literally have no reason to make this, so everything's on my Patre'. 💀
+I literally have no reason to make this, so take this as a TL;DR. 💀
 
 ______________________________
 
@@ -27,7 +27,7 @@ Fandom interests (most of which I don't really know a lot about)
 
 .☁️. Pokemon
 
-.☁️. Murder Drones! (Fans Please INT, I Beg Of You Guys.)
+.☁️. Murder Drones! (Fans INT Pleasepelaepapelapslp
 
 .☁️. FNAF 
 
