@@ -25,11 +25,17 @@ I dislike copying/taking hard inspo. Vice versa as well. But if I end up having 
 
 Fandom interests (most of which I don't really know a lot about)
 
-.☁️. Pokemon
+.☁️. Pokemon, Kirby, Super Mario
 
 .☁️. Murder Drones! (Fans INT Pleasepelaepapelapslp
 
 .☁️. FNAF 
+
+.☁️. One Piece
+
+.☁️. (TADC) The Amazing Digital Circus
+
+.☁️. (BHNA/HA) Boku No Hero Acadamia
 
 !!! **HEY! I Don't Like Hazbin Hotel/Helluva Boss In Any Association With The Creator Vivziepop. I Only Love Two or Three Characters, With ZERO Relation To Dreaded Ties On Viv. I HATE The Fandom. S/A Jokers and Valentino IRLs DNI. I'm A Victim Myself And You're Mocking Me In Front Of My Peripheral Vision.
 ________
