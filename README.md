@@ -21,7 +21,7 @@ Wanna know a quick summary of me? Bet.
 
 I go by the names Kitt, Kittster, Kittsora, Zera, Kitters, Klouded/Kloudy(?), Glowskitt/Glowspee, and Kittkat. Yeah, lotta "Kitts", ain't there. Closest friends can call me Korryn.
 
-I dislike copying/taking hard inspo. Vice versa as well. But if I end up having a similar morph/skin similar to any of yours, varying on mood, then I could change its design. No harm done.
+I dislike copying/taking hard inspo. Vice versa as well. But if I end up having a similar morph/skin to any of yours, varying on mood, then I could change its design. No harm done.
 
 Fandom interests (most of which I don't really know a lot about)
 
