@@ -10,7 +10,9 @@ www.patreon.com/kittspi
 
 **Quick About Me:**
 
-My name's Kitt(spi)/Korryn/Kloudy.
+My name's Kitt(spi)/Korryn/Kloudy
+
+(She/Her) They/Them. He/Him is fine. Cis-Girl.
 
 I dislike copying/taking hard inspo. Vice versa as well. If I end up having a similar morph/skin to any of yours, varying on mood, then I could change its design; just ask me.
 
