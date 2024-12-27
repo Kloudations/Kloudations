@@ -1,18 +1,18 @@
-Find out the rest about me on my Patreon
+Find out the rest about me on my Patreon: 
 www.patreon.com/kittspi
 
 **Don't copy my skins, please. Grow some balls and enhance your own creativity.**
-**If I'm doing something wrong out in public, Honest To Got Tell me. I dislike free-hiders.
 
------------------------------
+**If I'm doing something wrong out in public, Honest To Got Tell me. I dislike free-hiders.
 
 ☁️ . ☁️ . ☁️ . ☁️ . ☁️
 
 
 **Quick About Me:**
 
-My name's Kitt(spi)/Korryn/Kloudy
-I dislike copying/taking hard inspo. Vice versa as well. But if I end up having a similar morph/skin to any of yours, varying on mood, then I could change its design. No harm done.
+My name's Kitt(spi)/Korryn/Kloudy.
+
+I dislike copying/taking hard inspo. Vice versa as well. If I end up having a similar morph/skin to any of yours, varying on mood, then I could change its design; just ask me.
 
 
 -- My Discord's just "kittspi". Tell me your user so I can verify.
