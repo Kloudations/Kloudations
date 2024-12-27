@@ -3,7 +3,7 @@ www.patreon.com/kittspi
 
 **Don't copy my skins, please. Grow some balls and enhance your own creativity.**
 
-**If I'm doing something wrong out in public, Honest To Got Tell me. I dislike free-hiders.
+**If I'm doing something wrong out in public, Honest to God tell me. I heavily loathe free-hiders.**
 
 ☁️ . ☁️ . ☁️ . ☁️ . ☁️
 
