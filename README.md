@@ -20,7 +20,7 @@ My name's Kitt(spi)/Korryn/Kloudy
 
 I try to match one another's personality so I  can attempt to make them comfortable with me. This applies to vibe of places and friend groups. 
 
-I am in the middle of a self-identity dilemma so I apologize.
+I am very self-insecure, so I apologize in advance.
 
 --------
 
