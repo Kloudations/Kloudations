@@ -12,7 +12,7 @@ www.patreon.com/kittspi
 
 My name's Kitt(spi)/Korryn/Kloudy
 
-(She/Her) They/Them. He/Him is fine. Cis-Girl.
+♀️(She/Her) They/Them. He/Him is fine. Cis-Girl.
 
 --------
 
@@ -24,10 +24,13 @@ I am very self-insecure at the moment, so I apologize in advance.
 
 --------
 
-I dislike copying/taking hard inspo. Vice versa as well. If I end up having a similar morph/skin to any of yours, varying on mood, then I could change its design; just ask me.
+🌈 -- My skin/morph style usually have a rainbow theme to it, unless the colors are difficult to blend otherwise. If you see someone that appears to be "Skittle-fied", you may have spot the one and only Kittspi.
 
 
--- My Discord's just "kittspi". Tell me your user so I can verify.
+❌ -- I dislike copying/taking hard inspo. Vice versa as well. If I end up having a similar morph/skin to any of yours, varying on mood, then I could change its design; just ask me.
+
+
+ 🗨️ -- My Discord's just "kittspi". Tell me your user so I can verify.
 
 ![image](https://user-images.githubusercontent.com/99100034/227718875-c5e52420-1a6b-41d9-8097-76680c1e1003.png)
 ![image](https://user-images.githubusercontent.com/99100034/227719036-bf12601a-7c58-41b4-97ad-65db3be5e5b5.png)
