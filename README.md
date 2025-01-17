@@ -14,6 +14,12 @@ My name's Kitt(spi)/Korryn/Kloudy
 
 (She/Her) They/Them. He/Him is fine. Cis-Girl.
 
+--------
+
+**One thing you should especially know is that I keep a consistent personality. My actions and/or responses are usually in hand with whom I'm talking to; In other words, I try to match the surroundings of other people, places, or friend groups. I am in the middle of a self-identity dilemma so I apologize.
+
+--------
+
 I dislike copying/taking hard inspo. Vice versa as well. If I end up having a similar morph/skin to any of yours, varying on mood, then I could change its design; just ask me.
 
 
