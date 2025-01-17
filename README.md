@@ -24,7 +24,7 @@ I am very self-insecure at the moment, so I apologize in advance.
 
 --------
 
-🌈 -- My skin/morph style usually have a rainbow theme to it, unless the colors are difficult to blend otherwise. If you see someone that appears to be "Skittle-fied", you may have spot the one and only Kittspi.
+🌈 -- My skin/morph style(s) usually have a rainbow theme to it, unless the colors are difficult to blend otherwise. If you see someone that appears to be "Skittle-fied", you may have spot the one and only Kittspi.
 
 
 ❌ -- I dislike copying/taking hard inspo. Vice versa as well. If I end up having a similar morph/skin to any of yours, varying on mood, then I could change its design; just ask me. **If you do not see the following social tags: (PATREON- ☁️ Kloudy Kittspi..); (GITHUB- @KLOUDATIONS); then it's not me. Just to get that established.**
