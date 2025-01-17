@@ -18,7 +18,7 @@ My name's Kitt(spi)/Korryn/Kloudy
 
 **One thing you should especially know is that I keep a consistent personality. My actions and/or responses are usually in hand with whom I'm talking to. In other words,
 
-I try to match one another's personality so I  can attempt to make them comfortable with me. This applies to vibe of places and friend groups. 
+I try to match one another's personality so I  can attempt to have them feel comfortable with me. This applies to vibe of places and friend groups. 
 
 I am very self-insecure at the moment, so I apologize in advance.
 
