@@ -1,21 +1,22 @@
 ***Watch out for @NostalgicSplatterling -- you don't want to be around this person. Pokemon and CP kink haver.
 
-
-Find out the rest about me on my Patreon: 
-www.patreon.com/kittspi
-
 **Don't copy my skins, please. Grow some balls and enhance your own creativity.**
 
-**If I'm doing something wrong out in public, honest to God tell me. I heavily loathe free-hiders.**
+**If I'm doing something wrong out in public, honest to God tell me. I loathe free-hiders.**
 
 ☁️ . ☁️ . ☁️ . ☁️ . ☁️
 
 
 **Quick About Me:**
 
-My name's Kitt(spi)/Korryn/Kloudy
+My name's Kitt(spi)/Korryn/Kloudy. I go by many other names too. I'll probably list them by the time I properly make a Strawpage.
 
-♀️(She/Her) They/Them. He/Him is fine. Cis-Girl.
+♀️(She/Her) They/Them. He/Him is fine. Cis-Girl. Safe-to-say tomboyish??
+
+🌈 -- My skin/morph style usually has a rainbow theme to it, unless the colors are difficult to blend otherwise. It can vary between dull and bright-- there's no realtime consistency with it. But if you see someone that appears to be "Skittle-fied", you've likely spotted the one and only Kittspi (me 😊).
+
+
+❌ -- I dislike copying/taking hard inspo. Vice versa as well. If I end up having a similar morph/skin to any of yours, varying on mood, then I could change its design; just ask me. **If you do not see the following social tags: (PATREON- ☁️ Kloudy Kittspi..); (GITHUB- @KLOUDATIONS); then it's not me. Just to get that established.**
 
 --------
 
@@ -23,13 +24,9 @@ My name's Kitt(spi)/Korryn/Kloudy
 
 I try to match one another's personality so I  can attempt to have them feel comfortable with me. This applies to vibe of places and friend groups. 
 
+I'm [probably] sorry if I've accidentally offended or hurt you in any way.
+
 --------
-
-🌈 -- My skin/morph style(s) usually has a rainbow theme to it, unless the colors are difficult to blend otherwise. If you see someone that appears to be "Skittle-fied", you may have spot the one and only Kittspi (me 😊).
-
-
-❌ -- I dislike copying/taking hard inspo. Vice versa as well. If I end up having a similar morph/skin to any of yours, varying on mood, then I could change its design; just ask me. **If you do not see the following social tags: (PATREON- ☁️ Kloudy Kittspi..); (GITHUB- @KLOUDATIONS); then it's not me. Just to get that established.**
-
 
  🗨️ -- My Discord's just "kittspi". Tell me your user so I can verify.
 
