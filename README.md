@@ -11,7 +11,7 @@
 
 My name's Kitt(spi)/Korryn/Kloudy. I go by many other names too. I'll probably list them by the time I properly make a Strawpage.
 
-♀️(She/Her) They/Them. He/Him is fine. Cis-Girl. Safe-to-say tomboyish??
+♀️ She/Her (They/Them). He/Him is fine. Cis-Girl. Safe-to-say tomboyish??
 
 🌈 -- My skin/morph style usually has a rainbow theme to it, unless the colors are difficult to blend otherwise. It can vary between dull and bright-- there's no realtime consistency with it. But if you see someone that appears to be "Skittle-fied", you've likely spotted the one and only Kittspi (me 😊).
 
