@@ -17,7 +17,7 @@ My name's Kitt(spi)/Korryn/Kloudy. I go by many other names too. I'll probably l
 
 🌈 -- My skin/morph style usually has a rainbow theme to it, unless the colors are difficult to blend otherwise. It can vary between dull and bright; there's no realtime consistency with it. Regardless, if you see someone that appears to be "skittlefied", you've likely spotted the one and only Kittspi (me 😊).
 
-❌ -- I dislike copying/taking hard inspo. Vice versa as well. If I end up having a similar morph/skin to any of yours, varying on mood, then I could change its design; just ask me. **I have my socials tagged to nearly all of them. If you do not see the following social tags then it's not me:**
+❌ -- I dislike copying/taking hard inspo. Vice versa as well. If I end up having a similar morph/skin to any of yours, varying on mood, then I could change its design; just ask me. **I have my socials tagged to nearly all of them. These are my tags of currently:**
 
 * **(PATREON- ☁️ Kloudy Kittspi..)**
 
